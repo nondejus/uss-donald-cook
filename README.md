@@ -1,1 +1,0 @@
-# uss-donald-cook
